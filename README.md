@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Naniloc.github.io/rsschool-cv/cv
